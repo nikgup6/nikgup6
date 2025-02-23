@@ -9,3 +9,4 @@ My leadership skills, management skills and enthusiastic behaviour to learn and 
 
 Travelling around the world and exposing to new trends is always my way.
 
+Checkout my website and connect with me- https://personal-portfolio-kappa-beryl-82.vercel.app/
